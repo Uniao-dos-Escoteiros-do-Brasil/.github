@@ -40,4 +40,4 @@ Ser reconhecida como uma organização de educação não formal relevante, que 
 
 Para encontrar um grupo escoteiro próximo a você, insira seu CEP ou localização no [site oficial dos Escoteiros do Brasil](https://www.escoteiros.org.br/).
 
-© 2024 Escoteiros do Brasil - Todos os direitos reservados
+© 2025 Escoteiros do Brasil - Todos os direitos reservados
